@@ -1,4 +1,4 @@
 # Radha
 Practice 
 <br>
-Owner - Siddharth Sharma 
+Owner - Siddharth (Rajasthani)  
